@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @luizadorr
 - 👀 I’m interested in technlogy and sports
-- 🌱 I’m currently learning python
 - 📫 How to reach me email:luiza12694@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i don´t like avocado :/
